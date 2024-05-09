@@ -1,0 +1,3 @@
+## Grab coffee and popcorn 
+
+After jake gets up from his bed to get some coffee and popcorn to not fall asleep and actually go trough with watching a horror movie, he makes two cups of coffee for himself in complete darkness in his kitchen after he tried to turn on the lights but they didn't work for some reason, he ignores it and while he waits for the coffee to be ready he puts a bag of popcorn in the microwave. As soon as the coffee is ready he grabs it with the popcorn and goes back up to his room, he hears a door making noise but he checks his front door and it's closed so he just ingores it and goes to his room to continue with the movie with the help of some cafeine.
