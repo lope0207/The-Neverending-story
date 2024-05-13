@@ -6,6 +6,6 @@ Unable to shake off the horror of his nightmare, Jake confides in Sarah, finding
 
 What should Jake do next?
 
-- [Seek Counsel from a Teacher](../school-options/teacher-advice.md)
+- [Seek Counsel from a Teacher](./school-options/teacher-advice.md)
   
-- [Research the Movie's Origins](../school-options/research.md)
+- [Research the Movie's Origins](./school-options/research.md)
