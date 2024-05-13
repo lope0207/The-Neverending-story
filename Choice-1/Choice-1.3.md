@@ -1,0 +1,3 @@
+Upon realizing that someone is indeed following him, Jake decides to run as fast as he can to seek refuge in his house. Upon arrival and peering out the window, he sees that the person following him is wearing the same mask as the character from the horror movie. His first instinct is to rush to his computer and delete the downloaded movie. As he does this, he hears the suspect stop trying to force the door and calmly walk away, giving him the scare of his life.
+
+The End.
